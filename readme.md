@@ -1,3 +1,4 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=DAVE+KASE+WITH+THE+ADDORABLE+FUTURE;THE+🔥BOT+FOR+GENERATIOS+IS+HERE👇💯🔥✨)](https://git.io/typing-svg)![Snapchat-729925782](https://github.com/user-attachments/assets/8537696a-f912-4b3f-af3e-4e4dff062e88)
 
 
 <!-- Glowing Header -->
